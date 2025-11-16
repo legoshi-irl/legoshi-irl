@@ -1,8 +1,13 @@
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=castlevanla&color=a20808&style=flat-square&label=visitors" />
-${\textsf{\color{#cfcfcf} heeyyy. }}$ <img src="https://i.postimg.cc/fyqfSwDF/a00531e2616cd41f6171c6d4ae53aa5b6e400257.gif" alt="me" width="15"/>
+  <img src="https://komarev.com/ghpvc/?username=castlevanla&color=a20808&style=flat-square&label=heeya" />
+  
+  <p align="center">
+${\textsf{\color{#cfcfcf} he / him }}$ <img src="https://i.postimg.cc/fyqfSwDF/a00531e2616cd41f6171c6d4ae53aa5b6e400257.gif" alt="me" width="15"/>
 </
+</p> 
+  <p align="center">
+${\textsf{\color{#cfcfcf} basic dni criteria. i dont like cuddles, sorry!  }}$ 
 </p> 
 
 <p align="center">
@@ -12,4 +17,4 @@ ${\textsf{\color{#cfcfcf} heeyyy. }}$ <img src="https://i.postimg.cc/fyqfSwDF/a0
 <h6 align="center"> ©  @yukurimpng on tumblr</h6> 
 
 <p align="center">
- ㅤ ${\textsf{\color{#a26037} ㅤalt acc}}$ ${\textsf{\color{#935993}ㅤ✦ㅤspam follow }}$
+ ㅤ ${\textsf{\color{#a26037} ㅤalt acc.}}$ ${\textsf{\color{#935993}ㅤ✦ㅤspam follow }}$
