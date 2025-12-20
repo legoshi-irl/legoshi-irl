@@ -6,7 +6,7 @@
 ━━━━━━
  </p>
 <p align="center">
-  ${\textsf{\color{#b29c9c} ✦ㅤ}}$ ${\textsf{\color{#403a3a}mael / gege}}$ ${\textsf{\color{#403a3a} 🀥ㅤheㅤhim }}$  ${\textsf{\color{#b29c9c} ✦ㅤ}}$
+  ${\textsf{\color{#b29c9c} ✦ㅤ}}$ ${\textsf{\color{#403a3a}mael /fafa}}$ ${\textsf{\color{#403a3a} 🀥ㅤheㅤhim }}$  ${\textsf{\color{#b29c9c} ✦ㅤ}}$
 <p align="center">
 ━━━━━━
  </p>
