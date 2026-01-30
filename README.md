@@ -1,7 +1,5 @@
 
 <p align="center">
-   <img src="https://komarev.com/ghpvc/?username=castlevanla&color=460000&style=flat-square&label=hi"/>
-<p align="center">
 ━━━━━━
  </p>
 <h6 align="center">block to remove</h6>
